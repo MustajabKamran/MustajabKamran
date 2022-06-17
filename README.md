@@ -4,17 +4,11 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mustajabkamran&label=Profile%20views&color=0e75b6&style=flat" alt="mustajabkamran" /> </p>
 
 - 🔭 I’m currently working on **ERC 20 Tokens & Multisign Wallet.**
-
 - 🌱 I’m currently learning **RUST**
-
 - 👯 I’m looking to collaborate on **YouTube.**
-
 - 😄 Pronouns: [He/his](He/his)
-
 - 💬 Ask me about **anything, I will be Happy to Help.**
-
 - 📫 How to reach me **[Twitter - @BankuuMirza](https://twitter.com/BankuuMirza)**
-
 - ⚡ Fun fact **I ❤️ what I am doing!! 😄**
 
 <h3 align="left">Connect with me:</h3>
