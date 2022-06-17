@@ -6,4 +6,4 @@
 - 💬 Ask me about anything, I will be Happy to Help.
 - 📫 How to reach me: [Twitter  - @BankuuMirza](https://twitter.com/BankuuMirza)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I <3 what I am doing!!.
+- ⚡ Fun fact: I ❤️ what I am doing!! 😄
