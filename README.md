@@ -4,6 +4,6 @@
 - 🌱 I’m currently learning RUST
 - 👯 I’m looking to collaborate on Youtube. 
 - 💬 Ask me about anything, I will be Happy to Help.
-- 📫 How to reach me: Twitter - @BankuuMirza
+- 📫 How to reach me: [Twitter  - @BankuuMirza](https://twitter.com/BankuuMirza)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I <3 what I am doing!!.
